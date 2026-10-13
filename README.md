@@ -13,4 +13,9 @@
 
 
 
+<img width="1161" height="657" alt="Screenshot 2026-10-13 160142" src="https://github.com/user-attachments/assets/9a8240b6-811f-4c17-b153-e398ae07c1f5" />
+
+<img width="1161" height="654" alt="Screenshot 2026-10-13 160203" src="https://github.com/user-attachments/assets/6c8482ea-1edc-4970-9c66-b09d9372b60b" />
+
+
 
